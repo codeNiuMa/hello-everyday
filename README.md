@@ -25,7 +25,9 @@
 
 【每日英语】
 Our destiny offers not the cup of despair, but the chalice of opportunity. So let us seize it, not in fear, but in gladness.
+
 命运给予我们的不是失望之酒，而是机会之杯。因此，让我们毫无畏惧，满心愉悦地把握命运。
+
 【每日一言】
 
 女孩子你不用骗她，只要她喜欢你，她自己会骗自己。
